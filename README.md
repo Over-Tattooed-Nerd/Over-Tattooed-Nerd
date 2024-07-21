@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SimplyJonn
+- 👋 Hi, I’m @Over-Tattooed-Nerd
 - 👀 I’m interested in Personal and Professional Growth!
 - 🌱 I’m currently learning Data Analytics
 - 📫 How to reach me is by sending me an email!
