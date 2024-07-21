@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SimplyJonn
 - 👀 I’m interested in Personal and Professional Growth!
 - 🌱 I’m currently learning Data Analytics
-- 📫 How to reach me is be sending me an email!
+- 📫 How to reach me is by sending me an email!
 - 😄 Pronouns: HE!!!!
 - ⚡ Fun fact: Im full of tattoos yet I prefer coffee over whiskey!
 
